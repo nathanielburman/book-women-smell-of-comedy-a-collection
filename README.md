@@ -68,3 +68,54 @@ Deadpool snorts another line off of lady with a new baby nose.
 He makes a quick joke we don't hear about smelly something and...
 
 were out. CUT.
+
+...
+
+breath
+
+...
+
+I hate that acting bit.
+
+...
+
+Another woman walks into the room and some gay guy yells:
+
+"I smell a cunt"
+
+the room goes silent, but the smell goes on
+
+"I smell something..."
+
+and another woman walks into the room
+
+another gay white guy says:
+
+"i smell something like fish but worse"
+
+then these furries come into the room and the gay guys start fighting with the furries and the furries win.
+
+...
+
+The furries noses are wayyyyyyyyy smarter than the gay noses.
+
+what the hell just happend, everyone says
+
+they help her up and the fight is over
+
+the women won this one
+
+this battle was faught by a few brave women
+
+and they won this one
+
+so they look down and see a twitch
+
+a movement
+
+their smells pits and dorks not even an issue anymore
+
+...
+
+Three chicks with smelly pits walk into a gay bar,
+the first chich says to the other, which one is the other?
