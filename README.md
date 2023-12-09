@@ -27,4 +27,4 @@ Rules:
 
 12. Huh? (Physical Humour...)
 
-<img src="https://github.com/nathanielburman/book-women-smell-of-comedy-a-collection/blob/main/smelly01.png" width="600px"></img>
+<img src="https://github.com/nathanielburman/book-women-smell-of-comedy-a-collection/blob/main/smelly01.png" width="100%"></img>
